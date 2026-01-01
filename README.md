@@ -6,4 +6,8 @@
 _________________________________________________________________________________________
 ![Image](https://github.com/user-attachments/assets/b48c9a6b-4a20-458e-8857-d8944fac907a)
 
+![Image](https://github.com/user-attachments/assets/b2dbcd15-b4fe-49d4-a32b-904a415a8fa0) ★. Hello! You can check the link for more information.
+
+![Image](https://github.com/user-attachments/assets/6ea94248-6607-4755-b4be-2a842cc36594)
+★. Please don't steal or copy my pony ideas, thank you very much
 
