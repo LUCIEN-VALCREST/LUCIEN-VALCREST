@@ -8,10 +8,10 @@
 
 _________________________________________________________________________________________
 
-![Image](https://github.com/user-attachments/assets/b2dbcd15-b4fe-49d4-a32b-904a415a8fa0) ★. Hello! You can check the link for more information. ![Image](https://github.com/user-attachments/assets/d5ac0ba2-6d9f-4683-9750-27bbfeb19252)
+![Image](https://github.com/user-attachments/assets/15456d0f-5f0b-416a-af74-e9a586650d97) ★. Hello! You can check the link for more information. ![Image](https://github.com/user-attachments/assets/15456d0f-5f0b-416a-af74-e9a586650d97)
 
-![Image](https://github.com/user-attachments/assets/6ea94248-6607-4755-b4be-2a842cc36594)
-★. Please don't steal or copy my pony ideas, thank you very much ![Image](https://github.com/user-attachments/assets/d3bd5240-0cd0-4b24-8673-7460b767be0d)
+![Image](https://github.com/user-attachments/assets/f321eab1-a422-4a42-955c-5493c6d7c086)
+★. Please don't steal or copy my pony ideas, thank you very much! ![Image](https://github.com/user-attachments/assets/f321eab1-a422-4a42-955c-5493c6d7c086)
 
 <img width="618" height="42" alt="Image" src="https://github.com/user-attachments/assets/c51591af-5d98-4fba-bc23-6b93e3129008" />
 
