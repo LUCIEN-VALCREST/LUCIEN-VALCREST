@@ -3,12 +3,9 @@
 ![Image](https://github.com/user-attachments/assets/2bd8522d-0934-4f3e-aebd-0fca94052d9a)
 <img width="618" height="486" alt="Image" src="https://github.com/user-attachments/assets/4336cae2-c021-40f6-a34e-09e44a76bcaa" />
 
-![Image](https://github.com/user-attachments/assets/a50108d0-44f6-44ce-92fb-134ec27e7842) <img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/529af5c3-76b3-432e-bd4c-784c642046a3" />
-
-![Image](https://github.com/user-attachments/assets/ee10718d-c497-4e6a-8225-55a8dfe4bc1a)
+<img width="618" height="107" alt="Image" src="https://github.com/user-attachments/assets/f648b58e-9afa-46b9-95f1-3126c08c1233" />
 
 _________________________________________________________________________________________
-![Image](https://github.com/user-attachments/assets/b48c9a6b-4a20-458e-8857-d8944fac907a)
 
 ![Image](https://github.com/user-attachments/assets/b2dbcd15-b4fe-49d4-a32b-904a415a8fa0) ★. Hello! You can check the link for more information. ![Image](https://github.com/user-attachments/assets/d5ac0ba2-6d9f-4683-9750-27bbfeb19252)
 
