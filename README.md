@@ -12,6 +12,8 @@ ________________________________________________________________________________
 ![Image](https://github.com/user-attachments/assets/6ea94248-6607-4755-b4be-2a842cc36594)
 ★. Please don't steal or copy my pony ideas, thank you very much ![Image](https://github.com/user-attachments/assets/d3bd5240-0cd0-4b24-8673-7460b767be0d)
 
+<img width="618" height="42" alt="Image" src="https://github.com/user-attachments/assets/c51591af-5d98-4fba-bc23-6b93e3129008" />
+
 ![Image](https://github.com/user-attachments/assets/2bd8522d-0934-4f3e-aebd-0fca94052d9a)
  />
 
