@@ -1,8 +1,7 @@
 <div align="center">
   
 ![Image](https://github.com/user-attachments/assets/2bd8522d-0934-4f3e-aebd-0fca94052d9a)
-![Image](https://github.com/user-attachments/assets/dc349b88-db51-4a17-a471-2be0c8188df3)
-![Image](https://github.com/user-attachments/assets/ce4b64e2-7def-4362-8313-30dd8d0abf49)
+<img width="618" height="486" alt="Image" src="https://github.com/user-attachments/assets/4336cae2-c021-40f6-a34e-09e44a76bcaa" />
 
 ![Image](https://github.com/user-attachments/assets/a50108d0-44f6-44ce-92fb-134ec27e7842) <img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/529af5c3-76b3-432e-bd4c-784c642046a3" />
 
