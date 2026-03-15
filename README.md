@@ -1,24 +1,9 @@
 <div align="center">
-  
-  ![Image](https://github.com/user-attachments/assets/2b54271d-26ea-4748-ac79-2418d1e21671)
-  ![Image](https://github.com/user-attachments/assets/2bd8522d-0934-4f3e-aebd-0fca94052d9a)
-<img width="618" height="486" alt="Image" src="https://github.com/user-attachments/assets/4336cae2-c021-40f6-a34e-09e44a76bcaa" />
 
-<img width="618" height="107" alt="Image" src="https://github.com/user-attachments/assets/f648b58e-9afa-46b9-95f1-3126c08c1233" />
+  <img width="1536" height="1110" alt="Image" src="https://github.com/user-attachments/assets/31530fe6-bb44-464d-8a00-6a559fb6811b" />
+
+  <img width="1536" height="1316" alt="Image" src="https://github.com/user-attachments/assets/89647964-b81d-4919-9ce2-8fd71956051f" />
+
+  <img width="1536" height="502" alt="Image" src="https://github.com/user-attachments/assets/dd607b0e-37c9-4b91-8e0c-8761426fad77" />
 
 _________________________________________________________________________________________
-
-![Image](https://github.com/user-attachments/assets/15456d0f-5f0b-416a-af74-e9a586650d97) ★. Hello! You can check the link for more information. ![Image](https://github.com/user-attachments/assets/15456d0f-5f0b-416a-af74-e9a586650d97)
-
-![Image](https://github.com/user-attachments/assets/f321eab1-a422-4a42-955c-5493c6d7c086)
-★. Please don't steal or copy my pony ideas, thank you very much! ![Image](https://github.com/user-attachments/assets/f321eab1-a422-4a42-955c-5493c6d7c086)
-
-<img width="618" height="42" alt="Image" src="https://github.com/user-attachments/assets/c51591af-5d98-4fba-bc23-6b93e3129008" />
-
-![Image](https://github.com/user-attachments/assets/2bd8522d-0934-4f3e-aebd-0fca94052d9a)
-
- <img width="618" height="310" alt="Image" src="https://github.com/user-attachments/assets/077ac3a0-3c7f-47e0-9118-c33e595a8405" />
- 
-![Image](https://github.com/user-attachments/assets/2b54271d-26ea-4748-ac79-2418d1e21671)
-
-cr to @REVOLVING 
