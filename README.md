@@ -14,7 +14,6 @@
 
 #  Don't steal my pony skin ideas and style, I value that, even though I've said it many times.  
 
-<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/0b5ee0a3-b22d-450e-8f0b-ba34aa4c67e6" /><img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/857a0cc3-3ed7-4633-8227-b2c6c8a37cbb" />
 
 # <img width="1831" height="2384" alt="Image" src="https://github.com/user-attachments/assets/9dfc1703-25c4-4457-ad68-223184978314" />
 
