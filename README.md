@@ -7,7 +7,7 @@
 <img width="2218" height="420" alt="Image" src="https://github.com/user-attachments/assets/d4cc1f62-f7a0-49a1-b786-a424c183675d" />
 
 
-# <img width="1280" height="77" alt="Image" src="https://github.com/user-attachments/assets/100df4b8-58dc-41f4-b85c-a695c086647d" />
+# <img width="1280" height="77" alt="Image" src="https://github.com/user-attachments/assets/100df4b8-58dc-41f4-b85c-a695c086647d" />  Don't steal my pony skin ideas and style, I value that, even though I've said it many times.
 
 
 
